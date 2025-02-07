@@ -11,7 +11,7 @@ Tagline: "We blow your dogs so you don't have to!"
 - Ad: "100% dog satisfaction guarantee"
 - Ad: “Think your dog deserves a blow job? We are better at it, hire us to do it instead!”
 - Ad: “Is your dog begging you for a blow job again? Let us handle it!”
-- Ad: Please don’t google our business…
+- Ad: "Please don’t google our business…"
 
 https://huskyblowjobs.com/
 
